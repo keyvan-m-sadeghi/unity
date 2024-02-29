@@ -8,7 +8,7 @@ Fuck that shit! Draw your own conclusions.
 
 <proceeds to describe his life events and learnings>
 
-# What's wrong with the world?
+# What's wrong with this world?
 
 Nothing! I stand corrected, everything!
 
