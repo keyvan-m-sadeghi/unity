@@ -7,3 +7,7 @@ You shouldn't see this as a blueprint of anything, quote and reference it in you
 Fuck that shit! Draw your own conclusions.
 
 ...proceeds to describe his life events and learnings
+
+# What's wrong with the world?
+
+Nothing! I stand corrected, everything!
