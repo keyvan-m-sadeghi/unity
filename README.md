@@ -18,4 +18,4 @@ Yet, life is a deceptively beautiful son of a gun! Trees are green, babies make 
 
 # Hong Kong
 
-<thankfully I wasn't smart enough. We've probably lost countless actual geniuses to these episodes>
+<thankfully I wasnt smart enough. Weve probably lost countless actual geniuses to these episodes>
