@@ -16,7 +16,7 @@ People kill each other. Greedy assheads rule. We struggle to put food on the tab
 
 Yet, life is a deceptively beautiful son of a gun! Trees are green, babies make you laugh, sun will shine for the foreseeable future. Rockets are gonna take us to visit moon for a vacation! How fucking cool is that?
 
-I think this world is a scam. In no possible world the likes of Trump, Biden and Elon Musk should be anywhere near power. They're all delusional! Two of them wouldn't know they've pissed themselves (debatable which two)!
+I think this world is a scam. In no possible world the likes of Trump, Biden and Elon Musk should be anywhere near power. They're all delusional! Two of them wouldn't know they've pissed themselves, debatable which two!
 
 # Hong Kong
 
