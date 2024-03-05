@@ -21,6 +21,11 @@ I think this world is a scam. We need to crash and burn it and build a new one. 
 
 This book attempts to formulate a plan to reimagine the world, and reformat it in that image!
 
+BTW, you don't need to read the whole thing, here's the algorithm in a few lines:
+1. Challenge Authority
+2. Empathize with everything and everything until you meet the authority
+3. Replace Authority with a modern system
+
 # Hong Kong
 
 <thankfully I wasnt smart enough. Weve probably lost countless actual geniuses to these episodes>
