@@ -51,7 +51,7 @@ This one screams it's a fact. It's my (current) 42: the answer to life, universe
 
 # Are you watching closely?
 
-This means that every movie you watched is a documentary. You weren't the only person in the world who watched that movie, right? So, amongst those who watched, there's definitely been people who empathided with at least one character throughout. Hence, that character has lived! Same for every book, cave carving, etc. By generalization, no new idea ever existed! The only given fact is the sun, and how it makes us dance to the song of uni/multiverse.
+This means that every movie you watched is a documentary. You weren't the only person in the world who watched that movie, right? So, amongst those who watched, there's definitely been people who empathized with at least one character throughout. Hence, that character has lived! Same for every book, cave carving, etc. By generalization, no original idea ever existed! The only given fact is the sun, and how it makes us dance to the song of uni/multiverse.
 
 Okay, these were all my present authorities. Back to the linear world. I'll bring experimental data for the rest of this. Please if you're following along, verify or contradict.
 
