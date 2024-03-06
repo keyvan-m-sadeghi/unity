@@ -35,7 +35,9 @@ life = meaning / time
 
 # God does not exist!
 
-Or does he? Or she? Or ze?! Anyhow, that fucking thing is the biggest scam of all. Ah also, anytime you felt like this has started to offend you, feel free to close whatever medium you're perceiving it from! There's extensive literature about this, so I'll just say, God is a quantum state IFF it exists. But so are we, the people, all. So fuck god. You see, as a programming language, even English is broken. Someone reads "Fuck God" and thinks I hate god, someone else will read it and think I wanna be intimate with god. The reality is I'm indifferent about the concept, and find it amusing and interesting, because it's grabbed so much attention during the curse of history! But I won't loop through it, I know it's a `while (true)` situation. I listen when people talk, but avoid contributing to an infinite loop :D
+Or does he? Or she? Or ze?! Anyhow, that fucking thing is the biggest scam of all. Ah also, anytime you felt like this has started to offend you, feel free to close whatever medium you're perceiving it from! There's extensive literature about this, so I'll just say, God is a quantum state IFF it exists. But so are we, the people, all. So fuck god.
+
+You see, as a programming language, even English is broken. Someone reads "Fuck God" and thinks I hate god, someone else will read it and think I wanna be intimate with god. The reality is I'm indifferent about the concept, and find it amusing and interesting, because it's grabbed so much attention during the curse of history! But I won't loop through it, I know it's a `while (true)` situation. I listen when people talk, but avoid contributing to an infinite loop :D
 
 # Singularity / Imam of time
 
