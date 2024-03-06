@@ -45,6 +45,8 @@ Another futile pursuit. This has been prophesied in all cultures I happened upon
 
 Heh, you get the drill here? Well, this one probably isn't a scam. And I say "probably" only because we haven't made the damn thing yet. But we're about to. It won't give us superintelligence, not that the hypothesis is wrong, because the universe too is in a state of singularity, it generates problems in a faster rate.
 
+Okay, these were all my present authorities. Back to linear world. I'll bring experimental data for the rest of this. Please if you're following along, verify or contradict.
+
 # Hong Kong
 
 <thankfully I wasnt smart enough. Weve probably lost countless actual geniuses to these episodes>
