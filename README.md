@@ -45,8 +45,6 @@ Another futile pursuit. This has been prophesied in all cultures I happened upon
 
 Heh, you get the drill here? Well, this one probably isn't a scam. And I say "probably" only because we haven't made the damn thing yet. But we're about to. It won't give us superintelligence, not that the hypothesis is wrong, because the universe too is in a state of singularity, it generates problems in a faster rate.
 
-Okay, these were all my present authorities. Back to linear world. I'll bring experimental data for the rest of this. Please if you're following along, verify or contradict.
-
 # Life is meaning over time
 
 This one screams it's a fact. It's my (current) 42: the answer to life, universe, and everything. I came up with it while taking a shit, I dunno, an hour ago? It takes different forms in my mind and regurgitates all over the place every day. Had me committed to a psychiatric hospital in 2011. It's definitely a better starting point than 42 :) but I won't surrender my 42 for anything. It's forever immortalized in my son's middle and last name!
@@ -55,6 +53,8 @@ This one screams it's a fact. It's my (current) 42: the answer to life, universe
 
 This means that every movie you watched is a documentary. You weren't the only person in the world who watched that movie, right? So, amongst those who watched, there's definitely been people who empathided with at least one character throughout. Hence, that character has lived! Same for every book, cave carving, etc. By generalization, no new idea ever existed! The only given fact is the sun, and how it makes us dance to the song of uni/multiverse.
 
-# Hong Kong
+Okay, these were all my present authorities. Back to the linear world. I'll bring experimental data for the rest of this. Please if you're following along, verify or contradict.
+
+<Hong Kong>
 
 <thankfully I wasnt smart enough. Weve probably lost countless actual geniuses to these episodes>
