@@ -39,7 +39,7 @@ Or does he? Or she? Or ze?! Anyhow, that fucking thing is the biggest scam of al
 
 # Singularity / Imam of time
 
-Another futile pursuit. This has been prophesied in all cultures I happened upon. IT'S A BIG FUCKING LIE. We're in the constant state of singularity. There is no spoon!
+Another futile pursuit. This has been prophesized in all cultures I happened upon. IT'S A BIG FUCKING LIE. We're in the constant state of singularity. There is no spoon!
 
 # Artificial General Intelligence
 
