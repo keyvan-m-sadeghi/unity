@@ -47,6 +47,10 @@ Heh, you get the drill here? Well, this one probably isn't a scam. And I say "pr
 
 Okay, these were all my present authorities. Back to linear world. I'll bring experimental data for the rest of this. Please if you're following along, verify or contradict.
 
+# Life is meaning over time
+
+This one screams it's a fact. It's my (current) 42: the answer to life, universe, and everything. I came up with it while taking a shit, I dunno, an hour ago? It takes different forms in my mind and regurgitates all over the place every day. Had me committed to a psychiatric hospital in 2011. It's definitely a better starting point than 42 :) but I won't surrender my 42 for anything. It's for ever immortalized in my son's middle and last name!
+
 # Hong Kong
 
 <thankfully I wasnt smart enough. Weve probably lost countless actual geniuses to these episodes>
