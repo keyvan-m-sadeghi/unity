@@ -25,6 +25,7 @@ BTW, you don't need to read the whole thing, here's the algorithm in a few lines
 1. Challenge Authority
 2. Empathize with everything in between until you meet the authority
 3. Replace Authority with a modern system
+4. Iterate!
 
 If you're more mathematically minded:
 
