@@ -57,6 +57,18 @@ This means that every movie you watched is a documentary. You weren't the only p
 
 Okay, these were all my present authorities. Back to the linear world. I'll bring experimental data for the rest of this. Please if you're following along, verify or contradict.
 
+# Iran
+
+Hello world! My name is Keyvan. I was born in Iran. Lots of names sound like that there: eeee aaaa! I'll skip my life story, because I'm old, and it'll be boring. Just trying to grab data points that are relevant to `life = meaning / time`.
+
+Like everywhere else, there's a shit show in that country, as you've probably heard. Contradicting belief systems, diverse races and cultures. You name it, we got it. This environment provides enough entropy to generate a vibrant youth population. You'll hear different versions, depending on whom you ask from. The reality in the streets though, is that everyone keeps up to date with technology. We find creative ways to stay connected to the rest of the world.
+
+In the midst of this, I was born! A curious boy, son to parents who were neither religious, nor atheist. By the age of five, I observed my first singularity, my baby sister. She was a wrecking ball, destroying the establishment and authority that I've worked so hard to build until that age!
+
+For you to fact check:
+1. Any environment that's not completely isolated converges with the rest of the world.
+2. Everything that registers in one's memory for the rest of life, is a singularity (in the eyes of the beholder and/or worldwide).
+
 <Hong Kong>
 
 <thankfully I wasnt smart enough. Weve probably lost countless actual geniuses to these episodes>
