@@ -19,7 +19,7 @@ Yet, life is a deceptively beautiful son of a gun! Trees are green, babies make 
 
 I think this world is a scam. We need to crash and burn it and build a new one. In no possible world the likes of Trump, Biden and Elon Musk should be anywhere near power. They're all delusional! Two of them wouldn't know they've pissed themselves, debatable which two!
 
-This book attempts to formulate a plan to reimagine the world, and reformat it in that image!
+This book attempts to formulate a plan to reimagine the world, and reformat it in that image.
 
 BTW, you don't need to read the whole thing, here's the algorithm in a few lines:
 1. Challenge Authority
