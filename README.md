@@ -30,7 +30,7 @@ BTW, you don't need to read the whole thing, here's the algorithm in a few lines
 If you're more mathematically minded:
 
 ```tex
-time = meaning
+life = meaning / time
 ```
 
 # God does not exist!
