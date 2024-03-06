@@ -26,6 +26,16 @@ BTW, you don't need to read the whole thing, here's the algorithm in a few lines
 2. Empathize with everything in between until you meet the authority
 3. Replace Authority with a modern system
 
+If you're more mathematically minded:
+
+```tex
+time = meaning
+```
+
+# God does not exist!
+
+Or does he? Or she? Or ze?! Anyhow, that fucking thing is the biggest scam of all! Ah also, anytime you felt like this has started to offend you, feel free to close whatever medium you're perceiving it from! 
+
 # Hong Kong
 
 <thankfully I wasnt smart enough. Weve probably lost countless actual geniuses to these episodes>
