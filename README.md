@@ -34,7 +34,7 @@ time = meaning
 
 # God does not exist!
 
-Or does he? Or she? Or ze?! Anyhow, that fucking thing is the biggest scam of all! Ah also, anytime you felt like this has started to offend you, feel free to close whatever medium you're perceiving it from! 
+Or does he? Or she? Or ze?! Anyhow, that fucking thing is the biggest scam of all. Ah also, anytime you felt like this has started to offend you, feel free to close whatever medium you're perceiving it from! 
 
 # Hong Kong
 
