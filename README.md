@@ -1,13 +1,12 @@
 # About Time
 <th title was unity, thought thats what I wanna talk about>
 
-OK, so first of all, I've written this book for me, don't owe you a damn thing!
+OK, so first of all, I've written this essay for me, don't owe you a damn thing!
 It's all gonna sound like cliches and bullshit you heard a million times before.
-It won't be a timeless piece. I'll talk about specific events in my time on this earth. Timefull rather.
-You shouldn't see this as a blueprint of anything, quote or adopt it in your work and life.
+It won't be a timeless piece. You shouldn't see this as a blueprint of anything, quote or adopt it in your work and life.
 Fuck that shit! Draw your own conclusions.
 
-<proceeds to describe his life events and learnings>
+<proceeds to describe his life events and learnings he thought but was wrong>
 
 # What's wrong with this world?
 
@@ -19,7 +18,7 @@ Yet, life is a deceptively beautiful son of a gun! Trees are green, babies make 
 
 I think this world is a scam. We need to crash and burn it and build a new one. In no possible world the likes of Trump, Biden and Elon Musk should be anywhere near power. They're all delusional! Two of them wouldn't know they've pissed themselves, debatable which two!
 
-This book attempts to formulate a plan to reimagine the world, and reformat it in that image.
+This essay attempts to formulate a plan to reimagine the world, and reformat it in that image.
 
 BTW, you don't need to read the whole thing, here's the algorithm in a few lines:
 1. Challenge Authority
@@ -55,20 +54,18 @@ This one screams it's a fact. It's my (current) 42: the answer to life, universe
 
 This means that every movie you watched is a documentary. You weren't the only person in the world who watched that movie, right? So, amongst those who watched, there's definitely been people who empathized with at least one character throughout. Hence, that character has lived! Same for every book, cave carving, etc. By generalization, no original idea ever existed! The only given fact is the sun, and how it makes us dance to the song of uni/multiverse.
 
-Okay, these were all my present authorities. Back to the linear world. I'll bring experimental data for the rest of this. Please if you're following along, verify or contradict.
-
-# Iran
+# Me
 
 Hello world! My name is Keyvan. I was born in Iran. Lots of names sound like that there: eeee aaaa! I'll skip my life story, because I'm old, and it'll be boring. Just trying to grab data points that are relevant to `life = meaning / time`.
 
 Like everywhere else, there's a shit show in that country, as you've probably heard. Contradicting belief systems, diverse races and cultures. You name it, we got it. This environment provides enough entropy to generate a vibrant youth population. You'll hear different versions, depending on whom you ask from. The reality in the streets though, is that everyone keeps up to date with technology. We find creative ways to stay connected to the rest of the world.
 
-In the midst of this, I was born! A curious boy, son to parents who were neither religious, nor atheist. By the age of five, I observed my first singularity, my baby sister. She was a wrecking ball, destroying the establishment and authority that I've worked so hard to build until that age!
-
-For you to fact check:
-1. Any environment that's not completely isolated converges with the rest of the world.
-2. Everything that registers in one's memory for the rest of life, is a singularity (in the eyes of the beholder and/or worldwide).
+In the midst of this, I was born! A curious boy, son to parents who were neither religious, nor atheist. By the age of five, I observed my first singularity, my baby sister. She was a wrecking ball, destroying the establishment and authority that I've worked so hard to build until that age! Any environment that's not completely isolated converges with the rest of the world.
 
 # Bipolar
 
-Bipolar episodes are bugs in my system. They lead to generating useless content like this. You feel inspired and think you found the key to solving every problem in the world. You just have to write it down or paint it up or whatever. Art: that's what this is. It's the same things we heard, in another form. That's what religion is, and why it keeps reappearing in endless forms.
+Bipolar episodes are bugs in my system. They lead to generating useless content like this. You feel inspired and think you found the key to solving every problem in the world. You feel obligated to write it down or paint it up or whatever. Art: that's what this is. It's a transform function. That's what religion is, and why it keeps reappearing in endless forms.
+
+# Joule Meter
+
+Each time you wanna break out of this loop, take a look directly in front, at present moment. If you're doing stuff and not thinking about your religion constantly, then you're good! If you get back here, you're just steaming off, nothing more significant.
