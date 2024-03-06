@@ -23,7 +23,7 @@ This book attempts to formulate a plan to reimagine the world, and reformat it i
 
 BTW, you don't need to read the whole thing, here's the algorithm in a few lines:
 1. Challenge Authority
-2. Empathize with everything and everything until you meet the authority
+2. Empathize with everything in between until you meet the authority
 3. Replace Authority with a modern system
 
 # Hong Kong
