@@ -69,6 +69,6 @@ For you to fact check:
 1. Any environment that's not completely isolated converges with the rest of the world.
 2. Everything that registers in one's memory for the rest of life, is a singularity (in the eyes of the beholder and/or worldwide).
 
-<Hong Kong>
+# Bipolar
 
-<thankfully I wasnt smart enough. Weve probably lost countless actual geniuses to these episodes>
+Bipolar episodes are bugs in my system. They lead to generating useless content like this. You feel inspired and think you found the key to solving every problem in the world. You just have to write it down or paint it up or whatever. Art: that's what this is. It's the same things we heard, in another form. That's what religion is, and why it keeps reappearing in endless forms.
