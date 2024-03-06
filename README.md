@@ -37,6 +37,10 @@ life = meaning / time
 
 Or does he? Or she? Or ze?! Anyhow, that fucking thing is the biggest scam of all. Ah also, anytime you felt like this has started to offend you, feel free to close whatever medium you're perceiving it from! There's extensive literature about this, so I'll just say, God is a quantum state IFF it exists. But so are we, the people, all. So fuck god.
 
+# Singularity / Imam of time
+
+Another futile pursuit. This has been prophesied in all cultures I happened upon. IT'S A BIG FUCKING LIE. We're in the constant state of singularity. There is no spoon!
+
 # Hong Kong
 
 <thankfully I wasnt smart enough. Weve probably lost countless actual geniuses to these episodes>
