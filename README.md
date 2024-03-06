@@ -13,7 +13,7 @@ Fuck that shit! Draw your own conclusions.
 
 Nothing! I stand corrected, everything!
 
-People kill each other. Greedy assheads rule. We struggle to put food on the table, worried that there won't be a table soon, eviction is coming if I don't pay this month's rent!
+People kill each other. Greedy assheads rule. We struggle to put food on the table, worried that there won't be a table soon, eviction is coming if I don't make this month's rent!
 
 Yet, life is a deceptively beautiful son of a gun! Trees are green, babies make you laugh, sun will shine for the foreseeable future. Rockets are gonna take us to visit moon for a vacation! How fucking cool is that?
 
