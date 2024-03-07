@@ -3,7 +3,7 @@
 
 OK, so first of all, I've written this essay for me, don't owe you a damn thing!
 It's all gonna sound like cliches and bullshit you heard a million times before.
-It won't be a timeless piece. You shouldn't see this as a blueprint of anything, quote or adopt it in your work and life.
+It won't be a timeless piece. Timefull rather. You shouldn't see this as a blueprint of anything, quote or adopt it in your work and life.
 Fuck that shit! Draw your own conclusions.
 
 <proceeds to describe his life events and learnings he thought but was wrong>
@@ -48,7 +48,7 @@ Heh, you get the drill here? Well, this one probably isn't a scam. And I say "pr
 
 # Life is meaning over time
 
-This one screams it's a fact. It's my (current) 42: the answer to life, universe, and everything. I came up with it while taking a shit, I dunno, an hour ago? It takes different forms in my mind and regurgitates all over the place every day. Had me committed to a psychiatric hospital in 2011. It's definitely a better starting point than 42 :) but I won't surrender my 42 for anything. It's forever immortalized in my son's middle and last name!
+This one screams it's a fact. It's my (current) 42: the answer to life, universe, and everything. I came up with it while taking a shit, I dunno, an hour ago? It takes different forms in my mind and regurgitates all over the place every day. Had me committed to a psychiatric hospital in 2011. It's a less cryptic starting point than 42, but I won't surrender my 42 for anything. It's forever immortalized in my son's middle and last name!
 
 # Are you watching closely?
 
@@ -56,11 +56,11 @@ This means that every movie you watched is a documentary. You weren't the only p
 
 # Me
 
-Hello world! My name is Keyvan. I was born in Iran. Lots of names sound like that there: eeee aaaa! I'll skip my life story, because I'm old, and it'll be boring. Just trying to grab data points that are relevant to `life = meaning / time`.
+Hello world! My name is Keyvan. I was born in Iran. Lots of names sound like that there: eeee aaaa! Just trying to grab data points that are relevant to `life = meaning / time`.
 
-Like everywhere else, there's a shit show in that country, as you've probably heard. Contradicting belief systems, diverse races and cultures. You name it, we got it. This environment provides enough entropy to generate a vibrant youth population. You'll hear different versions, depending on whom you ask from. The reality in the streets though, is that everyone keeps up to date with technology. We find creative ways to stay connected to the rest of the world.
+Like everywhere else, there's a shit show in that country, as you've probably heard. Contradicting belief systems, diverse races and cultures. You name it, we got it. This environment provides enough entropy to generate a vibrant youth population. You'll hear different versions, depending on whom you ask from. The reality in the streets though, is that everyone keeps up to date with technology. We find creative ways to stay connected to the rest of the world. Any environment that's not completely isolated converges with the rest of the world.
 
-In the midst of this, I was born! A curious boy, son to parents who were neither religious, nor atheist. By the age of five, I observed my first singularity, my baby sister. She was a wrecking ball, destroying the establishment and authority that I've worked so hard to build until that age! Any environment that's not completely isolated converges with the rest of the world.
+In the midst of this, I was born! A curious boy, son to parents who were neither religious, nor atheist. By the age of five, I observed my first singularity, my baby sister. She was a wrecking ball, destroying the establishment and authority that I've worked so hard to build until that age! I look forward to meeting singilarities every day everywhere I go.
 
 # Bipolar
 
