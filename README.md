@@ -36,7 +36,7 @@ life = meaning / time
 
 Or does he? Or she? Or ze?! Anyhow, that fucking thing is the biggest scam of all. Ah also, anytime you felt like this has started to offend you, feel free to close whatever medium you're perceiving it from! There's extensive literature about this, so I'll just say, God is a quantum state IFF it exists. But so are we, the people, all. So fuck god.
 
-You see, as a programming language, even English is broken. Someone reads "Fuck God" and thinks I hate god, someone else will read it and think I wanna be intimate with god. The reality is I'm indifferent about the concept, and find it amusing and interesting, because it's grabbed so much attention during the curse of history! But I won't loop through it, I know it's a `while (true)` situation. I listen when people talk, but avoid contributing to an infinite loop :D
+You see, as a programming language, even English is broken. Someone reads "Fuck God" and thinks I hate god, someone else will read it and think I wanna be intimate with god. The reality is I'm indifferent about the concept, and find it amusing and interesting, because it's grabbed so much attention during the course of history! But I won't loop through it, I know it's a `while (true)` situation. I listen when people talk, but avoid contributing to an infinite loop :D
 
 # Singularity / Imam of time
 
@@ -56,11 +56,11 @@ This means that every movie you watched is a documentary. You weren't the only p
 
 # Me
 
-Hello world! My name is Keyvan. I was born in Iran. Lots of names sound like that there: eeee aaaa! Just trying to grab data points that are relevant to `life = meaning / time`.
+Hello world! My name is Keyvan. Just trying to grab data points that are relevant to `life = meaning / time` here. I was born in Iran. Lots of names sound like mine there: eeee aaaa! 
 
-Like everywhere else, there's a shit show in that country, as you've probably heard. Contradicting belief systems, diverse races and cultures. You name it, we got it. This environment provides enough entropy to generate a vibrant youth population. You'll hear different versions, depending on whom you ask from. The reality in the streets though, is that everyone keeps up to date with technology. We find creative ways to stay connected to the rest of the world. Any environment that's not completely isolated converges with the rest of the world.
+Similar to everywhere else, there's a shit show in that country, as you've probably heard. Contradicting belief systems, diverse races and cultures. You name it, we got it. This environment provides enough entropy to generate a vibrant youth population. You'll hear different versions, depending on whom you ask from. The reality in the streets though, is that everyone keeps up to date with technology. We find creative ways to stay connected to the rest of the world. Any environment that's not completely isolated converges with the rest of the world.
 
-In the midst of this, I was born! A curious boy, son to parents who were neither religious, nor atheist. By the age of five, I observed my first singularity, my baby sister. She was a wrecking ball, destroying the establishment and authority that I've worked so hard to build until that age! I look forward to meeting singularities every day everywhere I go.
+In the midst of this, I was born! A curious boy, son to parents who were neither religious, nor atheist. By the age of five, I observed my first singularity, my baby sister. She was a wrecking ball, destroying the establishment and authority that I've worked so hard to build until that age! Ever since, I look forward to meeting singularities everywhere I go.
 
 # Bipolar
 
