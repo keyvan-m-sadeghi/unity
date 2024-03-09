@@ -22,7 +22,7 @@ This essay attempts to formulate a plan to reimagine the world, and reformat it 
 
 BTW, you don't need to read the whole thing, here's the algorithm in a few lines:
 1. Challenge Authority
-2. Empathize with everything in between until you meet the authority
+2. Empathize with everything in between until you meet the Authority
 3. Replace Authority with an up-to-date system
 4. Iterate!
 
