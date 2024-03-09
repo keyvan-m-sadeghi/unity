@@ -1,12 +1,12 @@
 # About Time
-<th title was unity, thought thats what I wanna talk about>
+<first title was unity thought thats what I wanna talk about>
 
 OK, so first of all, I've written this essay for me, don't owe you a damn thing!
 It's all gonna sound like cliches and bullshit you heard a million times before.
 It won't be a timeless piece. Timefull rather. You shouldn't see this as a blueprint of anything, quote or adopt it in your work and life.
 Fuck that shit! Draw your own conclusions.
 
-<proceeds to describe his life events and learnings he thought but was wrong>
+<proceeds to describe his life learnings>
 
 # What's wrong with this world?
 
@@ -41,6 +41,8 @@ You see, as a programming language, even English is broken. Someone reads "Fuck 
 # Singularity / Imam of time
 
 Another futile pursuit. This has been prophesized in all cultures I happened upon. IT'S A BIG FUCKING LIE. We're in the constant state of singularity. There is no spoon!
+
+The Kurzweilian Singularity predicts a new age: Stone, Bronze, ..., Modern Era, "Exponential Discovery". What's his contribution? He's a scam artist! There will be another age afterwards, after we travel faster than light.
 
 # Artificial General Intelligence
 
