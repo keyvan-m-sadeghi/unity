@@ -42,7 +42,7 @@ You see, as a programming language, even English is broken. Someone reads "Fuck 
 
 Another futile pursuit. This has been prophesized in all cultures I happened upon. IT'S A BIG FUCKING LIE. We're in the constant state of singularity. There is no spoon!
 
-The Kurzweilian Singularity predicts a new era: Stone, Bronze, ..., Modern Era, **`"Exponential Discovery"`**. He's a scam artist! There will be another age, after we travel faster than light. Big woof!
+The Kurzweilian Singularity predicts a new era: Stone, Bronze, ..., Modern Era, `"Exponential Discovery"`. He's a scam artist! There will be another age, after we travel faster than light. Big woof!
 
 # Artificial General Intelligence
 
