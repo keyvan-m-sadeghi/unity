@@ -32,7 +32,9 @@ If you're more mathematically minded:
 life = meaning / time
 ```
 
-<and a Venn diagram augmented with time to complete the picture>
+Remaining of this essay in a diagram:
+
+![Diagram](diagram.png)
 
 # God does not exist!
 
