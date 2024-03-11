@@ -71,3 +71,7 @@ Bipolar episodes are bugs in my system. They lead to generating useless content 
 # Joule Meter
 
 Each time you wanna break out of this loop, take a look directly in front, at present moment. If you're doing stuff and not thinking about your religion constantly, then you're good! If you get back here, you're just steaming off, nothing more significant.
+
+# Generalized Theory of Accelerating Returns
+
+![Meaning Over Time](diagram.png)
