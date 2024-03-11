@@ -32,6 +32,8 @@ If you're more mathematically minded:
 life = meaning / time
 ```
 
+<and a Venn diagram augmented with time to complete the picture>
+
 # God does not exist!
 
 Or does he? Or she? Or ze?! Anyhow, that fucking thing is the biggest scam of all. Ah also, anytime you felt like this has started to offend you, feel free to close whatever medium you're perceiving it from! There's extensive literature about this, so I'll just say, God is a quantum state IFF it exists. But so are we, the people, all. So fuck god.
