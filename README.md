@@ -3,7 +3,7 @@
 
 OK, so first of all, I've written this essay for me, don't owe you a damn thing!
 It's all gonna sound like cliches and bullshit you heard a million times before.
-It won't be a timeless piece. Timefull rather. You shouldn't see this as a blueprint of anything, quote or adopt it in your work and life.
+It won't be a timeless piece. Timefull rather, least original. You shouldn't see this as a blueprint of anything, quote or adopt it in your work and life.
 Fuck that shit! Draw your own conclusions.
 
 <proceeds to describe his life learnings>
