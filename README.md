@@ -54,7 +54,7 @@ This one screams it's a fact. It's my (current) 42: the answer to life, universe
 
 # Are you watching closely?
 
-This means that every movie you watched is a documentary. You weren't the only person in the world who watched that movie, right? So, amongst those who watched, there's definitely been people who empathized with at least one character throughout. Hence, that character has lived! Same for every book, cave carving, etc. By generalization, no original idea ever existed! Smart and genius are very scammy words, we all have an almost identical brain cell structure, lots of deaf and blind geniuses!
+This means that every movie you watched is a documentary. You weren't the only person in the world who watched that movie, right? So, amongst those who watched, there's definitely been people who empathized with at least one character throughout. Hence, that character has lived! Same for every book, cave carving, etc. By generalization, no original idea ever existed! Inventions are morphic restructuring of previous thoughts. Smart and genius are very scammy words, we all have an almost identical brain cell structure, lots of deaf and blind geniuses!
 
 The only given fact is the star systems, and how they make us dance to the song of uni/multiverse.
 
