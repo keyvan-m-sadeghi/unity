@@ -52,6 +52,8 @@ Heh, you get the drill here? Well, this one probably isn't a scam. And I say "pr
 
 This one screams it's a fact. It's my (current) 42: the answer to life, universe, and everything. I came up with it while taking a shit, I dunno, an hour ago? It takes different forms in my mind and regurgitates all over the place every day. Had me committed to a psychiatric hospital in 2012. It's a less cryptic starting point than 42, but I won't surrender my 42 for anything. It's forever immortalized in my son's middle and last name!
 
+It doesn't matter where you start from, equilibrium, singularity, peekaboo, Allaho Akbar! Conclusions are the same. You'll rediscover everything! Meaning is convergance of things you learn, during your life.
+
 # Are you watching closely?
 
 This means that every movie you watched is a documentary. You weren't the only person in the world who watched that movie, right? So, amongst those who watched, there's definitely been people who empathized with at least one character throughout. Hence, that character has lived! Same for every book, cave carving, etc. By generalization, no original idea ever existed! Inventions are morphic restructuring of previous thoughts. Smart and genius are very scammy words, we all have an almost identical brain cell structure, lots of deaf and blind geniuses!
