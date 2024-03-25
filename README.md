@@ -66,7 +66,7 @@ Hello world! My name is Keyvan. Just trying to grab data points that are relevan
 
 Similar to everywhere else, there's a shit show in that country, as you've probably heard. Contradicting belief systems, diverse races and cultures. You name it, we got it. This environment provides enough entropy to generate a vibrant youth population. You'll hear different versions, depending on whom you ask from. The reality in the streets though, is that everyone keeps up to date with technology. We find creative ways to stay connected to the rest of the world. Any environment that's not completely isolated, converges with the rest of the world.
 
-In the midst of this, I was born! A curious boy, son to parents who were neither religious, nor atheist. By the age of five, I observed my first singularity, my baby sister. She was a wrecking ball, destroying the establishment and authority that I've worked so hard to build until that age! Ever since, I look forward to meeting singularities everywhere I go.
+In the midst of this, I was born! A curious boy, son to parents who were neither religious, nor atheist. By the age of five, I observed my first singularity, my baby sister. She was a wrecking ball, destroying the establishment and authority that I worked so hard to build until that age! Ever since, I look forward to meeting singularities everywhere I go.
 
 # Bipolar
 
