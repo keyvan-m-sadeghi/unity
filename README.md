@@ -60,7 +60,7 @@ This means that every movie you watched is a documentary. You weren't the only p
 
 The only given fact is the star systems, and how they make us dance to the song of uni/multiverse.
 
-# Me
+# Me / Self / Soul / Consciousness
 
 Hello world! My name is Keyvan. Just trying to grab data points that are relevant to `life = meaning / time` here. I was born in Iran. Lots of names sound like mine there: eeee aaaa! 
 
