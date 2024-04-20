@@ -70,7 +70,7 @@ In the midst of this, I was born! A curious boy, son to parents who were neither
 
 # Bipolar
 
-Bipolar episodes are bugs in my system. They lead to generating useless content like this. You feel inspired and think you found the key to solving every problem in the world. You feel obligated to write it down or paint it up or whatever. Art: that's what this is. It's a transform function. That's what religion is, and why it keeps reappearing in endless forms.
+Manic episodes are bugs in my system. They lead to generating useless content like this. You feel inspired and think you found the key to solving every problem in the world. You feel obligated to write it down or paint it up or whatever. Art: that's what this is. It's a transform function. That's what religion is, and why it keeps reappearing in endless forms.
 
 # Joule Meter
 
