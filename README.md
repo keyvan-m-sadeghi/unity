@@ -38,7 +38,7 @@ Or does he? Or she? Or ze?! Anyhow, that fucking thing is the biggest scam of al
 
 You see, as a programming language, even English is broken. Someone reads "Fuck God" and thinks I hate god, someone else will read it and think I wanna be intimate with god. The reality is I'm indifferent about the concept, and find it amusing and interesting, because it's grabbed so much attention during the course of history! But I won't loop through it, I know it's a `while (true)` situation. I listen when people talk, but avoid contributing to an infinite loop :D
 
-# Singularity / Imam of time
+# Singularity / Messiah / Imam of time
 
 Another futile pursuit. This has been prophesized in all cultures I happened upon. IT'S A BIG FUCKING LIE. We're in the constant state of singularity. There is no spoon!
 
